@@ -2,7 +2,7 @@
 - 👀 I’m interested in Web Dev
 - 🌱 I’m currently learning Full-stack
 - 
-- 📫 How to reach me IG: _senorxrai_
+- 📫 How to reach me Insta: @_hopeordope_
 
 <!---
 XP-5C/XP-5C is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
